@@ -1,4 +1,5 @@
-<h2>👋 Hi there, I’m Archana </h2>
+<h1>👋 Hi there, I’m Archana </h1>
+
 - 😄 Pronouns: She/Her
 - ⛄ Me = ["Passionate Geek"] 🍀
 - 👀 I'm looking forward to : exhibit my knowledge in Tech Industry🤝
