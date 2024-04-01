@@ -7,6 +7,7 @@
 - 👨‍💻 Moto: Talk less; Code more ❤️
 - 🌱 I’m currently learning everything 🤣
 - 🎯 Goals: Learn new skills everyday
+- ❄️ Turning Aspirations to Codes 💡 
 - 📫 Let's connect @ [LinkedIn](https://www.linkedin.com/in/archana-athmanathan/)
 - ⚡ Fun fact: I love to sketch portraits 😇 and play chess ⚽
   
