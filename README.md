@@ -1,7 +1,6 @@
 <h1>👋 Hi there, I’m Archana </h1>
 
 - 😄 Pronouns: She/Her
-- 👀 I'm looking forward to : exhibit my knowledge in Tech Industry🤝
 - 💌 Reach me @ <arc1stmail@gmail.com>
 - 👨‍💻 Moto: Talk less; Code more ❤️
 - 🌱 I’m currently learning everything 🤣
